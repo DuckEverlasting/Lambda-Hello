@@ -8,3 +8,5 @@ ADDENDUM: I would like extra credit. Must keep up my GPA!
 ------ ALTERNATE REALITY ------
 
 IN THIS UNIVERSE I HAVE BLUE HAIR. IT'S WACKY.
+
+(Further editing this to explain that in the other, boring universe, I have brown hair. Not blue.)
